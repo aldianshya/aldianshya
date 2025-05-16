@@ -31,7 +31,7 @@
 ---
 
 ## 📫 Reach Me
-- 📧 Email: aldiansyah.dev@gmail.com
+- 📧 Email: aldinsh252@gmail.com
 - 💼 LinkedIn: [linkedin.com/in/aldiansyah](https://linkedin.com/in/aldiansyah)
 - 🌐 Portfolio (soon!)
 
